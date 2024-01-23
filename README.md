@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋. I am Sudha Sravya studying my Masters in NWSMU from 2024. Before this, I studied in SRM AP, India for compeltion of my Bachelors
 
 <!--
 **s571487/s571487** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
